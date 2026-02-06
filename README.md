@@ -1,1 +1,1 @@
-# adelmasinka.acga.github.io
+# adelmasinka.github.io
